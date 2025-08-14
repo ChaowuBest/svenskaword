@@ -1,4 +1,3 @@
-
 slipats
 rista
 blankpolerad
@@ -31,7 +30,7 @@ spänna
 slakten
 efteråt
 strapatser
-kvrävande
+krävande
 karg
 stoppa i sig
 prepp
@@ -43,4 +42,24 @@ stram
 snoka
 avärja
 strömma hit och dit
-
+underfund
+höra hemma
+vara till för
+gå igen
+i så pass
+rör det sig om
+hugg
+vars
+skrubba
+beta
+idyllisk
+ceremoni
+digna
+spåren efter
+träkol
+tillta
+timra
+nomad
+går åt
+glödande 
+bege sig
