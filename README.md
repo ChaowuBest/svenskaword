@@ -63,3 +63,5 @@ nomad
 går åt
 glödande 
 bege sig
+föröda
+förödande
