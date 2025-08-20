@@ -81,7 +81,6 @@ gå över till
 ta om hand
 slå följe
 på rygg
-drövis
 prydd
 lägga rom
 
