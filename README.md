@@ -65,3 +65,24 @@ glödande
 bege sig
 föröda
 förödande
+få i sig
+tam
+pionjär
+sammandrabbning
+upplagd för konflikter
+med sig i bagaget
+gåta
+ättling
+utökad
+bonde
+stunda
+kärl
+gå över till
+ta om hand
+slå följe
+på rygg
+drövis
+prydd
+lägga rom
+
+
