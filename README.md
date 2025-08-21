@@ -83,5 +83,20 @@ slå följe
 på rygg
 prydd
 lägga rom
-
-
+rulla om
+hur de ville
+hägnd
+tillkomst
+bredda ut sig
+storslaget
+trafikplats
+stå flr
+allokera
+avsätta
+ha råd att
+komma på
+ta fart
+bortemot
+monumental
+avlånga
+var för sig
