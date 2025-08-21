@@ -85,12 +85,12 @@ prydd
 lägga rom
 rulla om
 hur de ville
-hägnd
+hägna
 tillkomst
 bredda ut sig
 storslaget
 trafikplats
-stå flr
+stå för
 allokera
 avsätta
 ha råd att
