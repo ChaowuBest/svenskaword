@@ -1,7 +1,7 @@
 slipats
 rista
 blankpolerad
-i ena änden
+i ena ändan
 strå
 lina
 fångst
@@ -100,3 +100,12 @@ bortemot
 monumental
 avlånga
 var för sig
+bestrida 
+menlöst 
+skyr ut 
+utge sig 
+undanröjda 
+går rak på sak
+bossar
+invändning
+åka på något
