@@ -102,7 +102,7 @@ avlånga
 var för sig
 bestrida 
 menlös
-skyr ut 
+skyr
 utge sig 
 undanröjda 
 går rak på sak
