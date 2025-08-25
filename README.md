@@ -101,7 +101,7 @@ monumental
 avlånga
 var för sig
 bestrida 
-menlöst 
+menlös
 skyr ut 
 utge sig 
 undanröjda 
