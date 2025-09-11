@@ -130,6 +130,7 @@ råda över
 hissa
 hugg loss
 skyffla
+bryta loss
 kapa
 bryta loss
 
