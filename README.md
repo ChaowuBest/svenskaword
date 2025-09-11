@@ -109,3 +109,27 @@ går rak på sak
 bossar
 invändning
 åka på något
+säsongsbetonade
+inneha
+toppmodern
+torna upp sig
+duka under
+därför att
+efterlikna
+var de än låg
+intryckt
+idoga slit
+idog
+utläggen
+orubblig
+komma sig av
+vattenspegl
+frön
+välvilja
+råda över
+hissa
+hugg loss
+skyffla
+kapa
+bryta loss
+
